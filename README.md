@@ -1,0 +1,1 @@
+# Tarot.vrish.com
